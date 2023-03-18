@@ -23,6 +23,7 @@ IF U PAID FOR THIS U GOT SCAMMED ONLY DOWNLOAD LINK IS  https://github.com/Vaxxe
 
 
 
+![Screenshot (74)](https://user-images.githubusercontent.com/128196766/226144988-b2d4e96d-3217-403a-a20b-b8aa86bbe88e.png)
 
 
 
